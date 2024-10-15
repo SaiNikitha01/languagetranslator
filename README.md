@@ -1,0 +1,1 @@
+Easier Way To Code !
